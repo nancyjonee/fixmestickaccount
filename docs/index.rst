@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://fixmestickaccount.com/">
+
 How to Access Your FixMeStick Account on Any Device?
 ============================================
 .
